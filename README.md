@@ -1,3 +1,5 @@
+
+©Hortune Humter, Hoshun Murakami
 Prohibited items ■■ Prohibited items
 Please refrain from redistributing Tyranno Script itself.
 ・Tyrano script may not be used as a commercial product for smartphone conversion tools.
